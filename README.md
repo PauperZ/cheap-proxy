@@ -3,4 +3,4 @@
 
 TG频道：https://t.me/cheap_proxy
 
-Blog地址：http://cheap-proxy.top
+Blog地址：http://www.cheap-proxy.top
